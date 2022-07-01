@@ -5,7 +5,6 @@
 - 💬 Ask me about Chart something.
 - 📫 How to reach me: Twitter @Dolly7568 / Discord Dolly#2893 .
 - 😄 Pronouns: Idc.
-- ⚡ Fun fact: I love Roblox.
 <!--
 **Dolly5768/Dolly5768** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
